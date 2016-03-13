@@ -24,3 +24,8 @@ And then let's see how it goes.
 For keeping track, I'll use Habitica and add a "daily" to it. Yeah, let's add more gamification to my life.
 
 Phil
+
+References
+----------
+
+(http://www.jamesaltucher.com/2014/05/the-ultimate-guide-for-becoming-an-idea-machine/)
