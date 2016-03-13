@@ -29,3 +29,8 @@ References
 ----------
 
 (http://www.jamesaltucher.com/2014/05/the-ultimate-guide-for-becoming-an-idea-machine/)
+
+(http://www.chriswinfield.com/ideas/)
+
+(http://www.jamesaltucher.com/2015/01/faq-on-how-to-become-an-idea-machine/)
+
